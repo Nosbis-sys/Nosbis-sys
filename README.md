@@ -233,13 +233,21 @@ Relationships:
 
 wifes:
 [Yushie](https://github.com/yyushie?tab=followers)
+077
 
 husbands:
-Clown(Climanity)
+ClownPierce(Climanity)
 
 childrens:
 [Oliver](https://github.com/Oxlivervet)
 [Ashley](https://github.com/Asher-amc)
+[Marion](https://github.com/H0llowStrings)
+Masker
+Chris
+Mixi
+Yana
+Roby
+Holly
                                                            
 
 ╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
