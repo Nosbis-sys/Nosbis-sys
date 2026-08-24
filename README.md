@@ -187,7 +187,7 @@
                                                                May 30th.
 
                                                           Sexuality:
-                                                               Pan
+                                                               Pan/Ace/Platonic Love
 
                                                           Marital status:
                                                                Idk
@@ -213,6 +213,7 @@
                                                            Allow:
       
                                                               - Free hug
+                                                              - Platonic Love
                                                               - adding
 
                                                          **DONT** Allow:
