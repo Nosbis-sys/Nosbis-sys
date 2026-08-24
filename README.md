@@ -881,6 +881,103 @@ but of course Xeno's command go first.
 .
 
 .
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
+
+                                                     # General
+
+                                                          Name:
+                                                               *Wemmbu*
+
+                                                          Nichmnames:
+                                                               *Wemmy/The Invisible Knight/Emperor Wemmbu*
+
+                                                          Age:
+                                                               *19*
+
+                                                          Gender:
+                                                               Male
+
+                                                          Pronouns: 
+                                                               he/him
+
+                                                          Species:
+                                                               MC YT
+
+                                                          Birthday:
+                                                               Nov 1th.
+
+                                                          Sexuality:
+                                                               Straight
+
+                                                          Marital status:
+                                                               Single
+    
+                                                          Lover:
+                                                               No one
+
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
+
+![Wemmbu](https://i.pinimg.com/736x/40/3f/73/403f731109e2d10d819d579360fb4846.jpg)
+
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
+
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
+
+                                                           Moods:
+
+                                                              (v) Playfu;
+                                                              (v) MACE ATTACK!!
+                                                              (v) NUKE
+                                                              ( ) adding
+
+                                                           Allow:
+      
+                                                              - no
+                                                              - adding
+ 
+                                                           **DONT** Allow:
+
+                                                              - Dramas
+                                                              - touch 
+                                                              - command by others
+                                                              - cover by others
+                                                              - people come fight me
+                                                              - kidnap egg.
+                                                              - adding
+
+    
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
+
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
+
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
+
+
+Relationships:
+
+None.
+   
+
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
+
+![Wemmbu banner](https://i.pinimg.com/736x/73/45/9c/73459cb9f4f022402771392618e247b8.jpg)
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 
                                               # I'm getting Lazy.. so I will just say Others name.
 
@@ -995,8 +1092,8 @@ but of course Xeno's command go first.
                                                           Species: *Falling Angel*
                                                           Birthday: *Jan 26th.*
                                                           Sexuality: *Bisexual*
-    
                                                           Marital status: *Dating with Bambiii*
+                                                          
                                                           Call Me Daddy! Wait.. NO- Call me Lu!
                                                           or your King hehe you know~ 
                                                           I'm the King of Hell after all. 
@@ -1019,6 +1116,29 @@ but of course Xeno's command go first.
                                                           Don't trust the words of Lu.
 
 ![Alastor](https://i.pinimg.com/736x/61/37/46/6137462369175742f48f4d360b46e729.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+    
+                                                          Name: *Stolas*
+                                                          Age: *??*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Demon Prince*
+                                                          Birthday: *Feb 5th*
+                                                          Sexuality: *Homosexual*
+                                                          Marital status: *Dating with Blitzy~*
+
+![Stolas](https://i.pinimg.com/736x/82/07/3b/82073b5135616a7289e98285df95bc92.jpg)
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+    
+                                                          Name: *Blitzø Buckzo*
+                                                          Age: *34*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Demon IMP*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *Dating with Big Bird*
+
+![Blitzo](https://i.pinimg.com/736x/ea/7f/a9/ea7fa9bdb0cdc364a802675f1370bd72.jpg)
 
 
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
