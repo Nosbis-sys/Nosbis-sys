@@ -235,6 +235,7 @@ wifes:
 [Yushie](https://github.com/yyushie?tab=followers)
 
 husbands:
+Clown(Climanity)
 
 childrens:
 [Oliver](https://github.com/Oxlivervet)
