@@ -3,7 +3,7 @@
 
  *` WELCOME TO OUR HOME `*
 ![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) 
-.                                                        [α𝗍αᑲ𝗄](https://nosbis.atabook.org/) | [ѕтяαω](https://irhis666.straw.page/) | [ɢʊռֆ](https://guns.lol/nosbis)
+                                                    [α𝗍αᑲ𝗄](https://nosbis.atabook.org/) | [ѕтяαω](https://irhis666.straw.page/) | [ɢʊռֆ](https://guns.lol/nosbis)
 
 .
 
@@ -206,9 +206,9 @@
  
                                                            Moods:
  
-                                                              (v)Happy
-                                                              (v) curious
-                                                              ( ) adding
+                                                              [x] Happy
+                                                              [x] curious
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -314,9 +314,9 @@ Holly
 
                                                            Moods:
 
-                                                              (v) Unknow
-                                                              (v) curious
-                                                              ( ) adding
+                                                              [x] Unknow
+                                                              [x] curious
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -411,9 +411,9 @@ None.
 
                                                            Moods:
 
-                                                              (v) Angry
-                                                              (v) Tired..
-                                                              ( ) adding
+                                                              [x] Angry
+                                                              [x] Tired..
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -501,9 +501,9 @@ fire just like the kids me.)
 
                                                            Moods:
 
-                                                              (v) Happy!
-                                                              (v) curious
-                                                              ( ) adding
+                                                              [x] Happy!
+                                                              [x] curious
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -595,9 +595,9 @@ he also dislike water. love touch fire.)
 
                                                            Moods:
 
-                                                              (v) Angry
-                                                              (v) Bro
-                                                              ( ) adding
+                                                              [x] Angry
+                                                              [x] Bro
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -685,8 +685,8 @@ Wemmbu (We are chill i guess)
                                                        ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
                                                            Moods:
 
-                                                              (v) Cheerful
-                                                              ( ) adding
+                                                              [x] Cheerful
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -772,10 +772,10 @@ ask me anything! I know everything!
 
                                                            Moods:
 
-                                                              (v) Cheerful
-                                                              (v) Curious
-                                                              (v) Happy
-                                                              ( ) adding
+                                                              [x] Cheerful
+                                                              [x] Curious
+                                                              [x] Happy
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -855,8 +855,8 @@ so i help her type if she is here!
 
                                                            Moods:
 
-                                                              (v) Serious
-                                                              ( ) adding
+                                                              [x] Serious
+                                                              [ ] adding
 
                                                            Allow:
       
@@ -940,10 +940,10 @@ but of course Xeno's command go first.
 
                                                            Moods:
 
-                                                              (v) Playfu;
-                                                              (v) MACE ATTACK!!
-                                                              (v) NUKE
-                                                              ( ) adding
+                                                              [x] Playfu;
+                                                              [x] MACE ATTACK!!
+                                                              [x] NUKE
+                                                              [ ] adding
 
                                                            Allow:
       
