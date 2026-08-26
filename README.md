@@ -3,7 +3,7 @@
 
  *` WELCOME TO OUR HOME `*
 ![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) 
-     ≻────────────────────────  [α𝗍αᑲ𝗄](https://nosbis.atabook.org/)  ✩  [ѕтяαω](https://irhis666.straw.page/)  ✩  [ɢʊռֆ](https://guns.lol/nosbis)  ✩  [Cαɾԃ](https://nosbis336.carrd.co/)─────────────────────── ≺
+     ≻────────────────────────  [α𝗍αᑲ𝗄](https://nosbis.atabook.org/)  ✩  [ѕтяαω](https://irhis666.straw.page/)  ✩  [ɢʊռֆ](https://guns.lol/nosbis)  ✩  [Cαɾԃ](https://nosbis336.carrd.co/)  ✩  [Pσυɳɾ](https://pronouns.cc/@Nosbis)─────────────────────── ≺
 
 
 
