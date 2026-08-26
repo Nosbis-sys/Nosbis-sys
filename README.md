@@ -206,9 +206,9 @@
  
                                                            Moods:
  
-                                                              [x] Happy
-                                                              [x] curious
-                                                              [ ] adding
+                                                             -[x] Happy
+                                                             -[x] curious
+                                                             -[ ] adding
 
                                                            Allow:
       
