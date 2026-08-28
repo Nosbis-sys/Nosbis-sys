@@ -898,6 +898,7 @@ but of course Xeno's command go first.
 .
 
 .
+
                                               ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
                                                      # General
@@ -1021,7 +1022,19 @@ None.
                                                           Sexuality: *Bisexual*
                                                           Marital status: *His Wife and Husband*
 
-![Clown](https://i.pinimg.com/736x/6a/67/39/6a6739acb5687f4b9867f493932e2007.jpg)
+![Clown](https://i.pinimg.com/736x/6a/67/39/6a6739acb5687f4b9867f493932e2007.jpg)                                                
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *Ashswag*
+                                                          Age: *22*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Human*
+                                                          Birthday: *Jan 16th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *My gf squiddo!*
+
+![Ash](https://i.pinimg.com/736x/95/4f/3e/954f3e91adb286bf66fedb0a964a9c36.jpg)
     
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
